@@ -17,7 +17,7 @@ Tools and Skills
 
 Background  
 - M.S. and B.S. in Applied Mathematics  
-- 14 years of experience teaching at the 4-year college level  
+- 15 years of experience teaching in higher education
 - Strong foundation in mathematics, statistics, and problem-solving
 
 Goals  
